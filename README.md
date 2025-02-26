@@ -75,9 +75,3 @@
 ![Imagem do WhatsApp de 2024-10-17 à(s) 07 16 45_f8b7ff16](https://github.com/user-attachments/assets/03944f4e-eb22-40f9-a9b8-ccb459ee6e2b)
 
 </details>
-
-<details>
-
-<summary>SR2</summary>
-
-</details>
